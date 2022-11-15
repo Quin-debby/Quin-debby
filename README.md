@@ -1,0 +1,1 @@
+Inquisitive and consistent 
