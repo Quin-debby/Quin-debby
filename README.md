@@ -1,1 +1,1 @@
-Inquisitive and consistent 
+git confg 
